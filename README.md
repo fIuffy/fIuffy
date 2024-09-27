@@ -1,1 +1,1 @@
-![fIuffy](https://github.com/user-attachments/assets/ae580e99-62be-4bf8-a47c-5aef79ce7c76)
+![fIuffy](https://github.com/user-attachments/assets/aa388659-34b7-495f-beb8-2df81daead1d)
